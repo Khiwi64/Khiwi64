@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Khiwi64
+- 👀 I’m interested in game (valorant, lol, wow..)
